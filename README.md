@@ -21,7 +21,7 @@ You can click the Preview link to take a look at your changes.
 
 - 💞️ I’m looking to collaborate on **Remote Working**
 
-- 📫 How to reach me **gnanaprahaasamsr@gmail.com**
+- 📫 How to reach me **sr.gnanaprahaasam@t-nxt.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
